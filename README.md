@@ -22,4 +22,4 @@
 ## 🌐 Connect With Me
 
 - 🎧 Discord: `2017since`
-- 💻 GitHub: [@raizenisgod](https://github.com/raizenprice)
+- 💻 GitHub: [@raizenprice](https://github.com/raizenprice)
